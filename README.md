@@ -38,7 +38,7 @@
 ## Misc
 * [The Shattered]( https://www.facebook.com/groups/1516611181916320/)
 * [FistShark Marketing Focus Group](https://www.facebook.com/groups/574272512689825/)
-* [Shattered Free World (shitposting group)](https://www.facebook.com/groups/750581138328808/)
+* [Shattered Free World](https://www.facebook.com/groups/750581138328808/) (Shitposting)
 * [Politics](https://www.facebook.com/groups/138863416475939/)
 * [Gardening](https://www.facebook.com/groups/1718127855075791/)
 * [FistShark Marketing Roleplay](https://www.facebook.com/groups/560856684042218/)
