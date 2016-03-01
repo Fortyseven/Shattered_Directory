@@ -14,7 +14,7 @@
 * [3DS/Wii-U Junkies](https://www.facebook.com/groups/825441577538199/)
 * [GamerGate Quarantine Zone](https://www.facebook.com/groups/1541405486137399/)
 * [Speed Runners](https://www.facebook.com/groups/257033501160550/)
-* [Playing With the Shattered](https://www.facebook.com/groups/736432743044597/) _(If you wanna play something with someone post * here.)_
+* [Playing With the Shattered](https://www.facebook.com/groups/736432743044597/) (Team up in-game with other Shattered.)
 
 ##Tech
 * [FistShark Marketing IT Division](https://www.facebook.com/groups/791694950887891/)
