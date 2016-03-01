@@ -31,6 +31,7 @@
 * [Shattered Steel](https://www.facebook.com/groups/975253805857386/) (Metal)
 * [Movie Club and TV Talk](https://www.facebook.com/groups/1521413064753162/)
 * [Photography](https://www.facebook.com/groups/1545007282398334/)
+* [The Shattered Awaken](https://www.facebook.com/groups/893558574065098/) (Star Wars; Ep7 Spoilers!)
 
 ##Regional
 * [Irish Shattered](https://www.facebook.com/groups/767135130099615/)
