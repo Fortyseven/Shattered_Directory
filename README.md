@@ -16,9 +16,10 @@
 * [Speed Runners](https://www.facebook.com/groups/257033501160550/)
 * [Playing With the Shattered](https://www.facebook.com/groups/736432743044597/) (Team up in-game with other Shattered.)
 
-##Tech
+##Tech and Science
 * [FistShark Marketing IT Division](https://www.facebook.com/groups/791694950887891/)
 * [Game Development](https://www.facebook.com/groups/Shattered.GameDev/)
+* [A Shattered Space Oddysee](https://www.facebook.com/groups/864233163615510/)
 
 ##The Arts
 * [Shattered Animanga Funtimes](https://www.facebook.com/groups/1639094209685324/) (Anime/Manga)
@@ -35,21 +36,22 @@
 * [Irish Shattered](https://www.facebook.com/groups/767135130099615/)
 * [British Shattered](https://www.facebook.com/groups/343611069119908/)
 
-## Misc
-* [The Shattered]( https://www.facebook.com/groups/1516611181916320/)
-* [FistShark Marketing Focus Group](https://www.facebook.com/groups/574272512689825/)
-* [Shattered Free World](https://www.facebook.com/groups/750581138328808/) (Shitposting)
-* [Politics](https://www.facebook.com/groups/138863416475939/)
-* [Gardening](https://www.facebook.com/groups/1718127855075791/)
-* [FistShark Marketing Roleplay](https://www.facebook.com/groups/560856684042218/)
+##Health, Lifestyle, and Society
 * [The Shattered Lonely Single's Club](https://www.facebook.com/groups/284812568376704/)
-* [Shattered Group for Cheese](https://www.facebook.com/groups/476747242483777/)
-* [Shattered Zee Captains](https://www.facebook.com/groups/731667750275782/)
-* [A Shattered Space Oddysee](https://www.facebook.com/groups/864233163615510/)
-* [Shattered Shoe Laces](https://www.facebook.com/groups/703337436423092/)
-* [The Pie Guild](https://www.facebook.com/groups/217058215148820/)
-* [Parents](https://www.facebook.com/groups/1106897489338689/)
 * [Shattered Health Improvement Team](https://www.facebook.com/groups/ShatteredHealthImprovementTeam/)
 * [Shattered Community Mental Health Defragmentation](https://www.facebook.com/groups/1059565727407819/)
 * [Shattered: The New Other](https://www.facebook.com/groups/1510524429250446/) (Transgender)
+* [Parents](https://www.facebook.com/groups/1106897489338689/)
+
+## Misc
+* [The Shattered]( https://www.facebook.com/groups/1516611181916320/)
+* [FistShark Marketing Focus Group](https://www.facebook.com/groups/574272512689825/)
+* [Politics](https://www.facebook.com/groups/138863416475939/)
+* [Shattered Free World](https://www.facebook.com/groups/750581138328808/) (Shitposting)
+* [Gardening](https://www.facebook.com/groups/1718127855075791/)
+* [FistShark Marketing Roleplay](https://www.facebook.com/groups/560856684042218/)
+* [Shattered Group for Cheese](https://www.facebook.com/groups/476747242483777/)
+* [Shattered Zee Captains](https://www.facebook.com/groups/731667750275782/)
+* [Shattered Shoe Laces](https://www.facebook.com/groups/703337436423092/)
+* [The Pie Guild](https://www.facebook.com/groups/217058215148820/)
 * [The Vid Cirman only Shattered Group](https://www.facebook.com/groups/1503773723194012/) (You can’t join it!)
