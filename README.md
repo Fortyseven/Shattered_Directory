@@ -19,7 +19,7 @@
 ##Tech
 * [IT](https://www.facebook.com/groups/791694950887891/)
 * [Game Development](https://www.facebook.com/groups/Shattered.GameDev/)
-* 
+
 ## Misc
 * [Gardening](https://www.facebook.com/groups/1718127855075791/)
 * [Fistshark](https://www.facebook.com/groups/574272512689825/)
